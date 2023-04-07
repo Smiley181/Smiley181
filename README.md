@@ -1,5 +1,5 @@
 # 💫 About Me:
-🤝 I’m currently learning and improving c++<br>💬 You can contact me on dc: -> ツ <-#5002
+💬 You can contact me on dc: -> ツ <-#5002
 
 
 ## 🌐 Socials:
