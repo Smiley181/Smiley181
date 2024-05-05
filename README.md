@@ -1,5 +1,5 @@
 # 💫 About Me:
-💬 You can contact me on dc: -> ツ <-#5002
+💬 You can contact me on dc: smiley.dc
 
 
 ## 🌐 Socials:
